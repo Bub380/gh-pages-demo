@@ -37,5 +37,7 @@ To one-half of this mixture add dates, cut into small pieces, and use as filling
 remaining mixture and decorating with sections of orange and perfect dates. 
 
 ## Source
+![Cover Image](images/calendar_cookbook_cover.jpg)
+
 Allen, Ida Bailey. *Woman's World Calendar Cook Book*. Chicago: Woman's World Magazine Co., 1922. 
 [https://catalog.hathitrust.org/Record/100770279](https://catalog.hathitrust.org/Record/100770279)
