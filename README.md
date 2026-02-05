@@ -1,4 +1,5 @@
 # Ida Bailey Allen's Orange and Date Cake
+![Cake on Table](images/orange_date_cake.png)
 ## Orange and Date Cake
 
 ### Ingredients
